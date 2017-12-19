@@ -1,4 +1,4 @@
 # Resources
 
-Hi My Friends,
+Hi My Friend,
 you are welcome. 
